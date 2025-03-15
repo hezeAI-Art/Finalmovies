@@ -1,2 +1,1 @@
-# Finalmovies
-Finalmovies is for free
+SAFE
